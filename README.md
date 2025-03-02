@@ -1,3 +1,2 @@
-- 🔭 Tech writer using this account for learning/personal projects
+- 🔭 tech writer/editor using this account for learning/personal projects
 - 📫 mtnlark@pm.me
-- 🧑🏻‍💻 s/he
