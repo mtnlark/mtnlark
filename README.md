@@ -1,2 +1,2 @@
 - 🔭 tech writer/editor using this account for learning/personal projects
-- 📫 mtnlark@pm.me
+- 📫 levcraig@proton.me
