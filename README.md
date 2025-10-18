@@ -1,1 +1,1 @@
-🔭 tech writer/editor using this account for personal projects
+🔭 technical writer working on hobbyist coding projects
