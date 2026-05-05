@@ -1,1 +1,1 @@
-🔭 technical writer and editor working on hobbyist coding projects
+🔭 writer, hobbyist programmer, bird enjoyer
